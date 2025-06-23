@@ -27,7 +27,7 @@ Open to **freelance and collaboration projects**, especially those involving str
 ## 📬 Contact
 
 Feel free to reach out for collaborations or freelance projects:  
-[Email] | [LinkedIn](https://linkedin.com/in/yourprofile)
+cyrielle.seymaux@gmail.com | [LinkedIn](https://linkedin.com/in/yourprofile](https://ca.linkedin.com/in/cyrielle-seymaux-820136224?trk=public_profile_samename-profile)
 
 ---
 
